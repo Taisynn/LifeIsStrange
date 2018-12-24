@@ -1,0 +1,1 @@
+This is just a Life is Strange Modification. The files are not mine. Go to Nexus Mods and Reddit if you'd like to find source files.
